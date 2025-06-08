@@ -1,1 +1,1 @@
-# malang.github.io
+# 일기 좀 쓰자 진짜
